@@ -1,3 +1,5 @@
+> Internet Downloader Manager Crack 6.42 Build 2025 and Patch
+
 ### **Overview of Internet Download Manager (IDM)**  
 
 **Internet Download Manager (IDM)** is a popular software tool designed to enhance download speeds, manage downloads efficiently, and provide advanced downloading features. It is widely used for downloading files, videos, and software from the internet.  
